@@ -10,7 +10,6 @@ D. Shostakovich and JS. Bach lover. Violinist. Artist. Birder. Environmentalist.
 ![shostakovichyoung](https://media.discordapp.net/attachments/793381314199945216/816708969795289118/DUepjSSXcAE6pon.jpg?width=402&height=532)
 ![shostakovichold](https://cdn.radiofrance.fr/s3/cruiser-production/2018/08/b4796e66-e8fd-441a-909a-c263e4942e7f/600x337_gettyimages-919611794.jpg)
 ![shostakovichold](https://www.wrti.org/sites/wrti/files/styles/x_large/public/202002/Shostakovich_Getty_1200px.jpg)
-![Shostakovich](http://beautifulrus.com/wp-content/uploads/2012/12/Dmitri-Shostakovich.jpg)
 
 That's my dear Shostakovich, DON'T YOU DARE COME CLOSE TO HIM.
 A great Russian and the best composer on earth, that's what he is
