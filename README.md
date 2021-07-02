@@ -1,6 +1,5 @@
 ## Coding and Design
-Perfectionist. Design fanatic. I do code, occasionaly, mainly in HTML, JavaScript, and Python. Many of my projects will be related to the environment or to classical music. I'm always ready to give advice on design. If that triggers anybody, I can't help it. 
-
+Perfectionist. Design fanatic. I do code, occasionaly, mainly in HTML, JavaScript, and Python. Many of my projects will be related to the environment or to classical music. I'm always ready to give advice on design.
 ***
 
 ## Other Interests
